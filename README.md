@@ -1,6 +1,6 @@
 👩🏻‍💻 Hello, World! Aqui é a Nanna
 
-Profissional em transição de carreira, possuo conhecimento em ferramentas e tecnologias como: Trello, Scup, VTracker, Scrum, LEAN, Kanban, GIT, GITHUB, LGPD, Java, etc. 
+Sou formada em Marketing e curso pós em Segurança da Informação e Gestão de TI. Profissional em transição de carreira, possuo conhecimento em ferramentas e tecnologias como: Trello, Scup, VTracker, Scrum, LEAN, Kanban, GIT, GITHUB, LGPD, Java, etc. 
 
 Community Manager certificada pela META (Facebook/Instagram e afins), possuo domínio das principais plataformas de conteúdo (Facebook, Instagram, Tiktok, Twitter, Linkedin, Pinterest, Reddit)
 
